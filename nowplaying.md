@@ -1,5 +1,5 @@
 🎵 **Aktualnie grany utwór:**
 
-Sureal - Always On My Mind (Radio Edit) (1080p)
+Akcent - Stay With Me (720p)
 
 _Aktualizacja automatyczna z Winampa_
