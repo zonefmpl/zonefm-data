@@ -1,5 +1,5 @@
 🎵 **Aktualnie grany utwór:**
 
-Akcent - Stay With Me (720p)
+DJ Gollum - Only You (1080p)
 
 _Aktualizacja automatyczna z Winampa_
