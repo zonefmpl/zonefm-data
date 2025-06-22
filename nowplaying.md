@@ -1,5 +1,5 @@
 🎵 **Aktualnie grany utwór:**
 
-Timmy Trumpet, KSHMR, Bassjackers - Eternity (Official Music Video) (1080p)
+Charly Lownoise & Mental Theo - Next 2 Me [Official Music Video] (480p)
 
 _Aktualizacja automatyczna z Winampa_
