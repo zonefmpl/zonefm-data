@@ -1,1 +1,1 @@
-Power of Love (Class Act Radio Edit) (1080p)
+David Guetta & Bebe Rexha - I'm Good (Blue) [Official Music Video] (1080p)
