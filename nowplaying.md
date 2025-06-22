@@ -1,5 +1,1 @@
-🎵 **Aktualnie grany utwór:**
-
-Little Sis Nora - Samurai [Official Music Video] (1080p)
-
-_Aktualizacja automatyczna z Winampa_
+Pandora - Call Me (Radio Edit) (1080p)
