@@ -1,5 +1,5 @@
 🎵 **Aktualnie grany utwór:**
 
-DJ Fait & Adrima - Can't Stop Raving (Adrima Mix) (1080p)
+Ben Gold feat. Christina Novelli - All Or Nothing (Allen Watts Remix) (720p)
 
 _Aktualizacja automatyczna z Winampa_
