@@ -1,1 +1,1 @@
-DJ SASH! Official - SASH! feat. Nicole Scholz - Rainbow (Official Video)
+Power of Love (Class Act Radio Edit) (1080p)
