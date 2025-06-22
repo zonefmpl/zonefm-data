@@ -1,5 +1,5 @@
 🎵 **Aktualnie grany utwór:**
 
-Ben Gold feat. Christina Novelli - All Or Nothing (Allen Watts Remix) (720p)
+Sureal - Always On My Mind (Radio Edit) (1080p)
 
 _Aktualizacja automatyczna z Winampa_
